@@ -3,7 +3,7 @@
 
 ## もしも何かあったときには
 
-- [もしもなにかあったときには](https://satomixx.github.io/maka/emergency)
+[飼い主のメールアドレス](zymotic.zymosis@gmail.com)までご連絡をください。
 
 
 ## SNS
